@@ -1,0 +1,2 @@
+# maloy-kak-metod
+maloykakmetod
